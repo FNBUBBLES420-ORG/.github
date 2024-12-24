@@ -113,7 +113,7 @@ We’d love to hear from you! Whether you have questions, ideas, or want to coll
 
 - **📧 Email:** [support@fnbubbles420.org](mailto:support@fnbubbles420.org)  
 - **💬 Discord:** [Join Us](https://discord.fnbubbles420.org/invite)  
-- **🐦 Twitter:** [Follow Us](https://twitter.com/fnbubbles420)  
+- **🐦 Twitter:** [Follow Us](https://twitter.com/fnbubbles420org)  
 - **🎥 Twitch:** [Watch Live](https://www.twitch.tv/fnbubbles420org)  
 - **🌐 Website:** [fnbubbles420.org](https://fnbubbles420.org)
 
