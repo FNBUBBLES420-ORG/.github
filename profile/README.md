@@ -7,7 +7,7 @@ Empowering **Disabled Gamers**, **Streamers**, **Developers**, and **Veterans** 
 
 ## 🎯 **Our Mission**
 
-At **FNBUBBLES420 Org**, we empower and uplift individuals, particularly those with disabilities, autism spectrum disorders, PTSD, mental health challenges, physical challenges, and service-related injuries. Our mission is to foster a **supportive**, **inclusive**, and **dynamic community** where everyone can thrive and unlock their full potential.
+At FNBUBBLES420 Org, we are a nonprofit charity dedicated to empowering and uplifting gamers 🎮, streamers 📹, developers 💻, and veterans 🎖️. Our mission focuses on supporting individuals with disabilities ♿, autism spectrum disorders 🧩, PTSD 🧠, mental health challenges 💚, physical challenges 💪, and service-related injuries. We are committed to building a supportive, inclusive, and dynamic community where everyone can unlock their full potential. 🌟
 
 ---
 
